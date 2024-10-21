@@ -5,4 +5,4 @@
 - 🌱 I’m constantly learning and exploring new technologies.
 - 💡 I enjoy collaborating on projects that challenge me and push my skills further.
 - ⚡ Fun fact:  I ❤️ Dogs 🐶.
-- 📫 Feel free to reach out (📧 satyaprakashnandy@gmail.com) or check out my repositories!
+- 📫 Feel free to reach out - 📧 satyaprakashnandy@gmail.com or check out my repositories 📦!
